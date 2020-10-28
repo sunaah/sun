@@ -1,2 +1,2 @@
-# sun
-For Mr. Sun's Students
+# Welcome to Mr. Sun's website
+Luoyang Normal University - Child Development Course, Fall 2020
