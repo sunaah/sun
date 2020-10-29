@@ -3,6 +3,8 @@
 
 <a href="https://yadi.sk/i/ZP3ufK5zGbtpRA">Child Development Syllabus</a>
 
+Course Book
+
 Module #1
 
 Module #2
